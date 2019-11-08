@@ -1,2 +1,2 @@
 # resume
-My latest CV (updated: 11/7/2019)
+My latest CV (updated: 11/8/2019)
